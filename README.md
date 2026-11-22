@@ -2,8 +2,10 @@
 
 
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31nmigtaiuek5n3ewvhfx7lcyume&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31nmigtaiuek5n3ewvhfx7lcyume&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31nmigtaiuek5n3ewvhfx7lcyume&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=919191&bar_color_cover=false">
+  </a>
+</p>
   </a>
 <p align="center">
  ‎  ‎ 
