@@ -1,5 +1,6 @@
 <p align="center">◞ ྀི ♪  ꒱ 
-
+  <p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fleur+De+Leah&pause=1000&color=F7F7F7&background=FCFEFF00&width=435&lines=I'm+thinking+about%2C+All+the+things%2C+I'd+like+to+do+in+my+life;I'm+a+dreamer%2C+A+distant+dreamer%2C+Dreaming+for+hope%2C+from+today." alt="Typing SVG" /></a>
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31nmigtaiuek5n3ewvhfx7lcyume&redirect=true">
@@ -9,7 +10,7 @@
   </a>
 <p align="center">
  ‎  ‎ 
-𓏼✚  int freely. w2i or i might ignore you. always by spawn. usually w friends, if not probably busy. ྀི︶ 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fleur+De+Leah&pause=1000&color=F7F7F7&background=FCFEFF00&width=435&lines=%F0%93%8F%BC%E2%9C%9A++int+freely.+w2i+or+i+might+ignore+you.;+always+by+spawn.+usually+w+friends%2C+if+not+probably+busy.+%E0%BE%80%E0%BD%B2%EF%B8%B6+" alt="Typing SVG" /></a>
 
 <p align="center">
 <a href="https://rentry.co/alicornsmoke"> <img src="https://github.com/alicornsmokin/info-./blob/770316544c49681ffb205859cb7289cbde7052d6/tumblr_f2a34e7779279b7bea71f56d3bad9073_80b001ec_540.png" width="80"> 
