@@ -1,4 +1,4 @@
-<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fleur+De+Leah&size=30&pause=1000&color=F7F7F7&width=435&lines=%22Please%2C+don't+forget...+;+From+the+bottom+of+my+heart...+;I+am+truly+in+love+with+th%EA%AE%9B+hope+that+sleeps+inside+you;+sleeps+inside+you.%22" alt="Typing SVG" /></a>◞ ྀི ♪  ꒱ 
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fleur+De+Leah&size=30&pause=1000&color=F7F7F7&width=435&lines=%22Please%2C+don't+forget...+;+From+the+bottom+of+my+heart...+;I+am+truly+in+love+with+the+hope+that+;+sleeps+inside+you.%22" alt="Typing SVG" /></a>◞ ྀི ♪  ꒱ 
   <p align="center">
 
 <p align="center"> <img src="https://github.com/alicornsmokin/alicornsmokin/blob/c58a118c74aa52b1339968674db337becbdeaa1a/tumblr_c8570cb438235473eef97c4b1566ff26_6e9091c5_2048.png" width="300"> 
