@@ -1,7 +1,7 @@
-<p align="center">◞ ྀི ♪  ꒱ 
+<p align="center"> "Plꮛɑse, don't forget... From thꮛ bottom of my hꮛɑrt... I ɑm truly in love with thꮛ hopꮛ thɑt sleeps inside you."◞ ྀི ♪  ꒱ 
   <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fleur+De+Leah&pause=1000&color=F7F7F7&background=FCFEFF00&width=435&lines=I'm+thinking+about%2C+All+the+things%2C+I'd+like+to+do+in+my+life;I'm+a+dreamer%2C+A+distant+dreamer%2C+Dreaming+for+hope%2C+from+today." alt="Typing SVG" /></a>
-<p align="center"> 
+<p align="center"> <img src="https://github.com/alicornsmokin/alicornsmokin/blob/c58a118c74aa52b1339968674db337becbdeaa1a/tumblr_c8570cb438235473eef97c4b1566ff26_6e9091c5_2048.png" width="300"> 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31nmigtaiuek5n3ewvhfx7lcyume&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31nmigtaiuek5n3ewvhfx7lcyume&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=919191&bar_color_cover=false">
