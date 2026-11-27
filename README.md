@@ -1,6 +1,6 @@
-<p align="center"> "Plꮛɑse, don't forget... From thꮛ bottom of my hꮛɑrt... I ɑm truly in love with thꮛ hopꮛ thɑt sleeps inside you."◞ ྀི ♪  ꒱ 
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fleur+De+Leah&size=30&pause=1000&color=F7F7F7&width=435&lines=%22Please%2C+don't+forget...+;+From+the+bottom+of+my+heart...+;I+am+truly+in+love+with+th%EA%AE%9B+hope+that+sleeps+inside+you;+sleeps+inside+you.%22" alt="Typing SVG" /></a>◞ ྀི ♪  ꒱ 
   <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fleur+De+Leah&pause=1000&color=F7F7F7&background=FCFEFF00&width=435&lines=I'm+thinking+about%2C+All+the+things%2C+I'd+like+to+do+in+my+life;I'm+a+dreamer%2C+A+distant+dreamer%2C+Dreaming+for+hope%2C+from+today." alt="Typing SVG" /></a>
+
 <p align="center"> <img src="https://github.com/alicornsmokin/alicornsmokin/blob/c58a118c74aa52b1339968674db337becbdeaa1a/tumblr_c8570cb438235473eef97c4b1566ff26_6e9091c5_2048.png" width="300"> 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31nmigtaiuek5n3ewvhfx7lcyume&redirect=true">
@@ -11,8 +11,7 @@
 <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fleur+De+Leah&pause=1000&color=F7F7F7&background=FCFEFF00&width=435&lines=%F0%93%8F%BC%E2%9C%9A++int+freely.+w2i+or+i+might+ignore+you.;+always+by+spawn.+usually+w+friends%2C+if+not+probably+busy.+%E0%BE%80%E0%BD%B2%EF%B8%B6+" alt="Typing SVG" /></a>
   <p align="center">
-<img src=https://file.garden/aKzMGI-7QmDUaY89/emoji%20stuff/red/5a4defba.gif>
-          <a href="https://hits.sh/github.com/sanguinesilence/hits/"><img alt="visitors" src="https://hits.sh/github.com/sanguinesilence/hits.svg?label=necks%20bitten&color=2D000A&labelColor=4F0315"/></a>  
+
   ㅤㅤㅤ ㅤㅤ
 <p align="center">
 <a href="https://rentry.co/alicornsmoke"> <img src="https://github.com/alicornsmokin/info-./blob/770316544c49681ffb205859cb7289cbde7052d6/tumblr_f2a34e7779279b7bea71f56d3bad9073_80b001ec_540.png" width="80"> 
